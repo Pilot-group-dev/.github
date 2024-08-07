@@ -1,4 +1,4 @@
-# ![pilot Agenturgruppe]([https://www.pilot.de/fileadmin/pilot/Header_Logo.png](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.pilot.de%2F&psig=AOvVaw2NrTfEjM2vixrCtcptvXDX&ust=1723121605442000&source=images&cd=vfe&opi=89978449&ved=0CA8QjRxqFwoTCJD136724ocDFQAAAAAdAAAAABAE))
+# ![pilot Agenturgruppe](https://www.pilot.de/wp-content/uploads/2019/05/pilot-group-ohg_hauptorganisation.jpg)
 
 **Hamburgs führende Medienagentur für innovative Kommunikation und digitale Transformation**
 
